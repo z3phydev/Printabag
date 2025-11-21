@@ -1,3 +1,5 @@
+## Total Time Spent - About 3 Hours
+
 ## 19/11/2025 6 PM -  Frist Ideas - 10 Minutes
 I've joined a coder club and now I travel with my laptop regulary. Most people there have laptop bags but something I took notice to is that they all look the same and have no real creativty. And I think to myself, what am I good at, well 3D modeling. So now I am here with a idea in my head, now all I have to do is make it. <img width="1000" height="944" alt="image" src="https://github.com/user-attachments/assets/86e88734-c3f7-4ed4-8400-d82785a7bc05" />
 BORING
